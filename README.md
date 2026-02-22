@@ -15,4 +15,4 @@
 ✅ ¿Qué aprendisteis durante el proceso?
 
 
-#Reflexión personal sobre el trabajo en equipo
+# ⭐Reflexión personal sobre el trabajo en equipo
